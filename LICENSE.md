@@ -1,4 +1,4 @@
-# 
+# Get the ultimate GIMP for PC | GIMP for Windows preset with ultimate GIMP for PC | GIMP for Windows Preset | color-correction + smart-objects. Featuring color-correction and
 
 
 
